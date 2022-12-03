@@ -1,0 +1,1 @@
+Im a Computer Information Systems/Programming student at Davenport University.  I will graduate with a BS in August 2023.  I aspire to be a software engineer, designing software that helps solve business problems. I would also like to design online games for fun. 
